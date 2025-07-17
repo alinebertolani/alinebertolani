@@ -6,7 +6,7 @@
 
 📊 Boas perguntas geram grandes descobertas — e os dados têm as respostas
 
-💻⚡ Apaixonada por dados e tecnologia, energizada por um estilo de vida ativo — entre uma análise e outra, você me encontra no crossfit 🏋️‍♀️
+💻 Apaixonada por dados e tecnologia, energizada por um estilo de vida ativo — entre uma análise e outra, você me encontra no crossfit 🏋️‍♀️
 
 Aqui é espaço aberto: dúvidas, sugestões, cafés virtuais ou aquela conversa sobre dados, é só chamar! 😉
 
